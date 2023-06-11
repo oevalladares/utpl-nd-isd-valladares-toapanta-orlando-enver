@@ -11,5 +11,7 @@ Mi experiencia laboral es la siguiente:
 
 
 *Mis redes más importantes son:*
-1.- (https://www.linkedin.com/in/enver-valladares-2518b9a0/)
-2.-(https://www.facebook.com/enver.valladares)
+
+
++(https://www.linkedin.com/in/enver-valladares-2518b9a0/)
++(https://www.facebook.com/enver.valladares)
